@@ -1,3 +1,3 @@
 # hello-word
 jast an other project
-不在乎别人怎么看
+想要和你去很远的地方
